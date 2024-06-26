@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/kqubey?tab=repositories](https://github.com/kqubey?tab=repositories)
 
-- 📫 How to reach me **skinpro1skinpro@gmail.com**
+- 📫 How to reach me [https://vk.com/kqbey](VK)
 
 - ⚡ Fun fact **I love learning new things**
 
